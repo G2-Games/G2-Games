@@ -7,4 +7,4 @@ You should check out my links:
 
 Or....
 
-⟱ Check out some possibly neat stuff below! ⟱
+⟱Check out some possibly neat stuff below!⟱
